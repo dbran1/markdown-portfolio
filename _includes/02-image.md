@@ -1,1 +1,1 @@
-![Johhny joestar using Tusk Act 4](https://www.google.com/url?sa=i&url=https%3A%2F%2Fjojo.fandom.com%2Fwiki%2FTusk&psig=AOvVaw0ykUm0CUHXV1KuTkFQXorJ&ust=1620140711888000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCIjGlNXkrfACFQAAAAAdAAAAABAD}
+![Johhny joestar using Tusk Act 4](https://www.google.com/url?sa=i&url=https%3A%2F%2Fjojo.fandom.com%2Fwiki%2FTusk&psig=AOvVaw0ykUm0CUHXV1KuTkFQXorJ&ust=1620140711888000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCIjGlNXkrfACFQAAAAAdAAAAABAD)
